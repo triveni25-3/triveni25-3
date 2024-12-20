@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @triveni25-3
 - 👀 I’m interested in Exploring new thing 
-- 🌱 I’m currently learning BTech 3rd Year
+- 🌱 I’m currently learning BTech 4rd Year
 - 💞️ I’m looking to collaborate on with MNC
-- 📫 How to reach me through my mail
+- 📫 How to reach me...... through my mail
 - 😄 Pronouns: Bujji
 - ⚡ Fun fact: Never say No one like me jzt say No One ...Like me
 
