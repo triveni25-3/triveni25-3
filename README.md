@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on with MNC
 - 📫 How to reach me...... through my mail
 - 😄 Pronouns: Bujji
-- ⚡ Fun fact: Never say No one like me jzt say No One ...Like me
+- ⚡ Fun fact: Never say No one likes me jzt say No One ...Like me
 
 <!---
 triveni25-3/triveni25-3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
