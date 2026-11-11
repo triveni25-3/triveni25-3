@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @triveni25-3
 - 👀 I’m interested in Exploring new thing 
 - 💞️ I’m looking for a job
-- 📫 How to reach me...... through my mail
-- 😄 Pronouns: Bujji
+- 📫 How to reach me.... through my mail(trivenipallapu253@gmail.com)
 - ⚡ Fun fact: Never say No one likes me jzt say No One ...Like me
 
 <!---
